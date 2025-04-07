@@ -15,7 +15,7 @@ Scroll down for a comprehensive guide on securing these TikTok ad credits before
 - **Claim via Links**: Most offers are accessed by signing up through [specific promotional landing pages](https://aff.ninja/go/tiktokforbusiness) rather than manual code entry.
 - **Maximize ROI**: Combine ad credit savings with strategic targeting, compelling creative, and ongoing optimization for the best results.
 
-[👉 Claim $1000 TikTok Ad Credits](https://aff.ninja/go/tiktokforbusiness)
+[![Claim $1000 TikTok Ad Credits](https://res.cloudinary.com/dav29ivcg/image/upload/v1744027058/Claim_1000_TikTok_Ad_Credits_bedprn.png)](https://aff.ninja/go/tiktokforbusiness)
 
 ---
 
@@ -47,7 +47,7 @@ This is a global offer for new advertisers using a "spend-and-get" model:
 - Spend the qualifying amount within 30 days
 - Credit is applied automatically to your account
 
-[🔥 Activate Your Ad Credits](https://aff.ninja/go/tiktokforbusiness)
+[![Activate Your Ad Credits](https://res.cloudinary.com/dav29ivcg/image/upload/v1744027057/Activate_Your_Ad_Credits_fcyagb.png)](https://aff.ninja/go/tiktokforbusiness)
 
 ---
 
@@ -64,7 +64,7 @@ Specifically for advertisers using the Lead Generation objective:
 - Launch a Lead Gen campaign
 - Spend the qualifying amount within 30 days
 
-[🎯 Start Saving on TikTok Ads](https://aff.ninja/go/tiktokforbusiness)
+[![Start Saving on Tiktok Ads](https://res.cloudinary.com/dav29ivcg/image/upload/v1744027048/Start_Saving_on_Tiktok_Ads_ur1w0t.png)](https://aff.ninja/go/tiktokforbusiness)
 
 ---
 
@@ -79,7 +79,7 @@ A TikTok + AMEX deal for new U.S. advertisers:
 - Spend $50 in 28 days after confirmation
 - Get $100 ad credit automatically
 
-[💳 Claim Your $100 Credits Now](https://aff.ninja/go/tiktokforbusiness)
+[![Claim Your $100 Credits Now](https://res.cloudinary.com/dav29ivcg/image/upload/v1744027047/Claim_Your_100_Credits_Now_m91qin.png)](https://aff.ninja/go/tiktokforbusiness)
 
 ---
 
@@ -89,7 +89,7 @@ A TikTok + AMEX deal for new U.S. advertisers:
 - Get $200 in ad credits
 - Ideal for new businesses and SMBs
 
-[🎁 Get $200 Bonus Credits](https://aff.ninja/go/tiktokforbusiness)
+[![Get $200 Bonus Credits](https://res.cloudinary.com/dav29ivcg/image/upload/v1744027046/Get_200_Bonus_Credits_df3a3g.png)](https://aff.ninja/go/tiktokforbusiness)
 
 ---
 
@@ -114,7 +114,12 @@ Step#1 Find the Promotional Link: Visit a trusted source like AffMaven.com that 
 
 Step#2 Sign Up on the Offer Page: The link should take you to an official TikTok for Business landing page detailing the promotion. Sign up for your new Ads Manager account directly from this page.
 
+[![Tiktok for Business official page](https://res.cloudinary.com/dav29ivcg/image/upload/v1744026402/Tiktok-for-Business-official-page_rs6qkj.png)](https://aff.ninja/go/tiktokforbusiness)
+
+
 Step#3 Complete Account Setup: Provide your business details and set up your billing information. You may need to pre-load funds depending on the offer terms.
+
+[![Create Your New TikTok Business Account](https://res.cloudinary.com/dav29ivcg/image/upload/v1744026402/Create-Your-New-TikTok-Business-Account_x0xcai.png)](https://aff.ninja/go/tiktokforbusiness)
 
 Step#4 Meet Spending Requirements: Launch your ad campaigns. Carefully track your spending to ensure you meet the required threshold (e.g., $1000 spend, or $1500 spend on Lead Gen) within the specified timeframe (usually 30 days). It's wise to aim slightly above the threshold to account for fluctuations.
 
