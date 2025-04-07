@@ -126,15 +126,15 @@ Step#5 Receive Credit Automatically: Once TikTok verifies you've met the terms, 
 
 While TikTok for Business free credits provide a fantastic start, sustained success hinges on smart strategy:
 
-- **Clear Objectives: Define your goals (awareness, traffic, leads, sales) and select the corresponding campaign objective in Ads Manager.
+- Clear Objectives: Define your goals (awareness, traffic, leads, sales) and select the corresponding campaign objective in Ads Manager.
 
-- **Targeting Precision: Go beyond broad demographics. Use TikTok's interest, behavior, lookalike, and custom audience targeting to reach users most likely to convert.
-- 
-- **Native & Engaging Creative: Create vertical videos that feel authentic to the TikTok experience. Hook viewers fast, use sound effectively, and include a clear CTA. Test relentlessly.
-- 
-- **A/B Testing Discipline: Test creatives, copy, audiences, and bidding strategies methodically to find what works best and optimize your budget allocation.
+- Targeting Precision: Go beyond broad demographics. Use TikTok's interest, behavior, lookalike, and custom audience targeting to reach users most likely to convert.
+  
+- Native & Engaging Creative: Create vertical videos that feel authentic to the TikTok experience. Hook viewers fast, use sound effectively, and include a clear CTA. Test relentlessly.
+  
+- A/B Testing Discipline: Test creatives, copy, audiences, and bidding strategies methodically to find what works best and optimize your budget allocation.
 
-- **Monitor & Adapt: Regularly analyze key metrics (CTR, CPC, CPA, ROAS) in your Ads Manager dashboard. Pause underperformers and scale winners.
+- Monitor & Adapt: Regularly analyze key metrics (CTR, CPC, CPA, ROAS) in your Ads Manager dashboard. Pause underperformers and scale winners.
 
 Combining initial savings from TikTok ad credits with these ongoing optimization efforts is the key to maximizing your return on investment.
 
